@@ -13,4 +13,4 @@ Technologie:
 
 
 Kontakt:
-mikekabelek@gmail.com lub przez [LinkedIn]([https://linkedin.com/in/twojprofil](https://www.linkedin.com/in/michał-gąsiorski-9445b3227/))
+mikekabelek@gmail.com lub przez LinkedIn https://www.linkedin.com/in/michał-gąsiorski-9445b3227/
